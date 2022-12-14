@@ -1,6 +1,6 @@
 <div align="center">
 
-## __ ✨최희정 Heejeong Choi✨ __
+## ___✨최희정 Heejeong Choi✨___
   
 </div>
 <br/>
